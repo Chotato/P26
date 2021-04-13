@@ -1,0 +1,9 @@
+Step 1: Bring Your Ingredients to Room Temperature
+
+Step 2: Make Your Graham Cracker Crust --> Make sure your graham crackers are finely ground. Then, mix it with melted butter, granulated sugar and salt. Press this into the bottom and halfway up the sides of a 9- inch springform pan. A springform pan is a necessity when making cheesecake. The sides are easily removed and your cheesecake will be perfectly intact.
+
+Step 3: Make Your Cheesecake Filling --> If you try and mix the filling up with cream cheese that isn’t quite room temperature, you will get lots of lumps. A few lumps is perfectly fine, too many lumps will change the texture. Do not over mix the cheesecake. Over mixing will incorporate too much air into the filling and cause it to crack as it’s baking. Just spread the cheesecake filling on top of the crust and smooth it out using a spatula or an offset spatula.
+
+Step 4: Bake Your Cheesecake --> First, DOUBLE wrap the bottom of your pan in foil. You bake a cheesecake in a water bath, and the foil is just a preventative measure so water doesn’t leak in and cause your crust to get soggy! Then find a baking pan that is bigger than your cheesecake pan and fill it about 3/4- inch deep with very hot water. Now, carefully place your cheesecake into the oven and allow it to bake for 60 -70 minutes. Don’t open your oven constantly. Here’s how to tell if your cheesecake is done baking once you check it: The outside should be set, while the inside should jiggle ever so slightly. This means it’s done. If you bake the cheesecake long enough that the center is set, it is over baked. Over baking also causes cracking.
+
+Step 5: Chill Your Cheesecake --> Allow the cheesecake to cool at room temperature for about an hour. THEN cover the pan with foil and it will need to chill in the refrigerator for at least 6 hours, but preferably overnight.
